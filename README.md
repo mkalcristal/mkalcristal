@@ -1,4 +1,4 @@
-![](https://drive.google.com/file/d/1AHwqyoWBYCoxIKF5HYBT5fc6DU9pakyh/view?usp=sharing)
+![](https://github.com/mkalcristal/Elective-Laboratories/blob/main/Laboratory%203/PROFILE%20BANNER.png)
 # 💫 About Me:
 I'm currently a 3rd year Civil Engineering Student
 
