@@ -1,4 +1,4 @@
-![](https://github.com/mkalcristal/Elective-Laboratories/blob/main/Laboratory%203/PROFILE%20BANNER.png)
+![](https://drive.google.com/file/d/140xc6s9LRlaHmIkvLw6ggFdQmnYXn_Rg/view?usp=sharing)
 # 💫 About Me:
 I'm currently a 3rd year Civil Engineering Student studying at Ateneo de Davao University.
 
